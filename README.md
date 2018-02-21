@@ -1,1 +1,5 @@
-https://docs.google.com/forms/d/1zakXtQWR4sNFoZUUirmdVYs1r77EuTLZ_lpEIhfaMuU/edit?usp=sharing
+Ссылка на форму: https://docs.google.com/forms/d/1zakXtQWR4sNFoZUUirmdVYs1r77EuTLZ_lpEIhfaMuU/edit?usp=sharing
+
+Ссылка на таблицу: https://docs.google.com/spreadsheets/d/1b5AdrHGQYcYb7F-FVPwF1rH_7-797ZVoq3Ft91aw1bY/edit?usp=sharing
+
+Последние несколько лет я стала интересоваться правильным питанием, фитнесом и т.д. Мне захотелось узнать, правда ли здоровый образ жизни потихоньку входит в привычку большинства совеменной молодёжи. В моём опросе приняли участие 36 человек, в основном это студенты, на это я и рассчитывала. Они ответили на несколько вопросов касающихся их образа жизни, это позволило мне сделать некоторые выводы, о которых я расскажу чуть позже.
